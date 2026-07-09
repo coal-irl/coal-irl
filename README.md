@@ -4,6 +4,7 @@
 
 　　　　　　　　　　　　　　![image](https://gifcity.carrd.co/assets/images/gallery49/4c620716.png?v=3fc8f5cd)![image](https://gifcity.carrd.co/assets/images/gallery49/4c620716.png?v=3fc8f5cd)![image](https://gifcity.carrd.co/assets/images/gallery49/4c620716.png?v=3fc8f5cd)![image](https://gifcity.carrd.co/assets/images/gallery49/4c620716.png?v=3fc8f5cd)![image](https://gifcity.carrd.co/assets/images/gallery49/4c620716.png?v=3fc8f5cd)![image](https://gifcity.carrd.co/assets/images/gallery49/4c620716.png?v=3fc8f5cd)![image](https://gifcity.carrd.co/assets/images/gallery49/4c620716.png?v=3fc8f5cd)![image](https://gifcity.carrd.co/assets/images/gallery49/4c620716.png?v=3fc8f5cd)
 
+　　　　　　　　　　　　　　　　　　　　　　　　　　　[![Visitors](https://api.visitorbadge.io/api/visitors?path=coal-irl&label=%E3%80%80%E3%80%80%E3%80%80%E3%80%80%E3%80%80%E3%80%80patients%20treated%20%E2%99%A1&labelColor=%23d9e3f0&countColor=%234c91f0&style=flat)](https://visitorbadge.io/status?path=coal-irl)
 
 　　　　　　　　　　　　　　　　![image](https://files.catbox.moe/pw2zif.gif)
 
