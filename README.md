@@ -1,12 +1,12 @@
-　　　　　　　　　　![image](https://files.catbox.moe/tah6n7.png)
+　　　　　　　　　　　　　　　![image](https://files.catbox.moe/xafeo8.gif)
 
-　　　　　　　　　　　　![iamge](https://gifcity.carrd.co/assets/images/gallery289/36c9fcc3.gif?v=3fc8f5cd)　　　 ${\textsf{\color{#4c91f0}old user was ggachapon}}$ ${\textsf{\color{#fafeee}　　𓈒　　}}$  ${\textsf{\color{#980f47} leave me alone, only friends can int }}$   　　![image](https://gifcity.carrd.co/assets/images/gallery284/0861f863.gif?v=3fc8f5cd)
+　　　　　　　　　　　　![iamge](https://gifcity.carrd.co/assets/images/gallery263/8ff4862b.gif?v=3fc8f5cd)　　　 ${\textsf{\color{#ed2809}old user was ggachapon}}$ ${\textsf{\color{#fafeee}　　𓈒　　}}$  ${\textsf{\color{#fff9dd} fandom dniuf }}$   　　![image](https://gifcity.carrd.co/assets/images/gallery312/d62872f4.gif?v=3fc8f5cd)
 
-　　　　　　　　　　　　　　![image](https://gifcity.carrd.co/assets/images/gallery49/4c620716.png?v=3fc8f5cd)![image](https://gifcity.carrd.co/assets/images/gallery49/4c620716.png?v=3fc8f5cd)![image](https://gifcity.carrd.co/assets/images/gallery49/4c620716.png?v=3fc8f5cd)![image](https://gifcity.carrd.co/assets/images/gallery49/4c620716.png?v=3fc8f5cd)![image](https://gifcity.carrd.co/assets/images/gallery49/4c620716.png?v=3fc8f5cd)![image](https://gifcity.carrd.co/assets/images/gallery49/4c620716.png?v=3fc8f5cd)![image](https://gifcity.carrd.co/assets/images/gallery49/4c620716.png?v=3fc8f5cd)![image](https://gifcity.carrd.co/assets/images/gallery49/4c620716.png?v=3fc8f5cd)
+　　　　　　　　　　　　　　![image](https://gifcity.carrd.co/assets/images/gallery39/b8836245.gif?v=3fc8f5cd)
 
-　　　　　　　　　　　　　　　　　　　　　　　　　　　[![Visitors](https://api.visitorbadge.io/api/visitors?path=coal-irl&label=%E3%80%80%E3%80%80%E3%80%80%E3%80%80%E3%80%80%E3%80%80patients%20treated%20%E2%99%A1&labelColor=%23d9e3f0&countColor=%234c91f0&style=flat)](https://visitorbadge.io/status?path=coal-irl)
-
-　　　　　　　　　　　　　　　　![image](https://files.catbox.moe/pw2zif.gif)
+　　　　　　　　　　　　　　　　　　　　　　　[![Visitors](https://api.visitorbadge.io/api/visitors?path=coal-irl&label=coals%20in%20stockings%20%E2%99%A1&labelColor=%23a63715&countColor=%23242424&style=flat)](https://visitorbadge.io/status?path=coal-irl)
+                       
+　　　　　　　　　　　　　　　　　　　　　![image](https://files.catbox.moe/8blj76.webp)
 
 <details>
 
