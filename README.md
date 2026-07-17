@@ -9,3 +9,5 @@
 　　　　　　　　　　　　　　　　　　　　　![image](https://files.catbox.moe/8blj76.webp)
 
 　　　　　　　　　　　　　　　　　　　　![image](https://files.catbox.moe/2nsu4i.png)
+
+　　　　　　　　　　　　　　　　　Adding this to my git because in tired, I don't care if you're a random or a "fan" of me **DONT TRY TO HAVE A PARASOCAL RELATIONSHIP WITH ME** I already have people being creepy and just flat out stalking me, if you don't know who I am, **DONT MAKE SKINS FOR ME??** I hate Pony Town Players so much bro **DNI**
