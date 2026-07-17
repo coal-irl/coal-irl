@@ -1,6 +1,6 @@
 　　　　　　　　　　　　　　　![image](https://files.catbox.moe/xafeo8.gif)
 
-　　　　　　　　　　　　　　　　![iamge](https://gifcity.carrd.co/assets/images/gallery263/8ff4862b.gif?v=3fc8f5cd)　　　 ${\textsf{\color{#ed2809}old user was ggachapon}}$ ${\textsf{\color{#fafeee}　　𓈒　　}}$  ${\textsf{\color{#fff9dd} fandom dniuf }}$   　　![image](https://gifcity.carrd.co/assets/images/gallery312/d62872f4.gif?v=3fc8f5cd)
+　　　　　　　　　　　　　　　　![iamge](https://gifcity.carrd.co/assets/images/gallery263/8ff4862b.gif?v=3fc8f5cd)　　　 ${\textsf{\color{#ed2809}dont int with me unless i know you}}$ ${\textsf{\color{#fafeee}　　𓈒　　}}$  ${\textsf{\color{#fff9dd} fandom dniuf }}$   　　![image](https://gifcity.carrd.co/assets/images/gallery312/d62872f4.gif?v=3fc8f5cd)
 
 　　　　　　　　　　　![image](https://gifcity.carrd.co/assets/images/gallery39/b8836245.gif?v=3fc8f5cd)
 
